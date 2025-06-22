@@ -11,10 +11,11 @@ We don’t just launch products—we ignite movements.
 We don’t pivot—we *predate* the pivot.
 
 Our tools think faster.  
-Our systems adapt deeper.  
+Our systems are more intelligent.
 Our team builds what others are still trying to understand.
 
 **We are not here to be seen. We are here to be felt.**
 
-Silent. Relentless. Unreasonably ambitious.  
+Silent. Relentless. Unreasonably ambitious.
+
 **We are Windhelm.**
